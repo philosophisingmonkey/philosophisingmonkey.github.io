@@ -20,6 +20,23 @@ You have to be capable to earn true respect. When you’re competent, people tru
     
 I’m pushing my mind to the max too-aiming to perform feats others think impossible. The key is to lock in, stay focused, and never let distractions or setbacks knock me off course. If I fall, I’ll get right back up.
 
+**F••• victim mentality**
+
+"
+_Some people are victimised by other people. And if it weren't for the indignation that that causes we wouldn't have reforms that we need. But that truth is mixed with another. It’s very counterproductive for an individual to feel like a victim even if he is. Best attitude is just to be cheerful about everything and keep plugging along_.
+"
+- Charline Munger
+
+“_Between stimulus and response there is a space. In that space is our power to choose our response. In our response lies our growth and our freedom_” 
+- Viktor Frankl
+
+"_My formula for greatness is [**amor fati:**](https://en.wikipedia.org/wiki/Amor_fati) That one wants nothing to be different, not forward, not backwards, not in all eternity. Not merely bear what is necessary, still less conceal it….but love it._”
+
+- Nietzsche
+
+Never, ever, ever have victim mentality. There is always someone who has it worse than you.
+
+
 Here’s my blueprint for success:
 - **Build unbreakable consistency.** Show up and deliver, **even when motivation is low.**
 - **Train mind and body relentlessly.** Make exercise, learning, and discipline daily habits.
